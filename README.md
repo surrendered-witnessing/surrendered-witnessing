@@ -27,3 +27,4 @@ i have **morally** questionable views
 
 i'm aggressive and make crude jokes
 
+![visitors](https://visitor-badge.laobi.icu/badge?page_id=surrendered-witnessing.visitor-badge&left_text=sinners&left_color=%23FFFFFFF&right_color=%235bffde)
