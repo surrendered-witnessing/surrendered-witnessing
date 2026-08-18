@@ -11,6 +11,8 @@ agender , transmasc , sodagender
 
 ═══════
 
+i am nonhuman
+
 ***opened can of wellcheers fullkin***
 
 *hong lu familial yumeshipper*
@@ -19,8 +21,9 @@ agender , transmasc , sodagender
 
 **no dni**, i block freely
 
-*bpdtism* , *adhd* , *dyslexia*
+i have **morally** questionable views
+
+*bpd* , *audhd* , *dyslexia* , *post-concussion syndrome*
 
 i'm aggressive and make crude jokes
 
-⁠♫
