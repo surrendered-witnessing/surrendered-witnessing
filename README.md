@@ -1,4 +1,4 @@
-<img width="450" height="450" alt="image" src="https://github.com/user-attachments/assets/2bbde447-3cfd-4914-9d6b-81542a768180" />
+[![Untitled11-20260819135022.png](https://i.postimg.cc/YC7MQczD/Untitled11-20260819135022.png)](https://postimg.cc/Wh5BPHK0)
 
 
 ═══════
