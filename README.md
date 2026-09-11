@@ -23,7 +23,7 @@ i am nonhuman
 
 i have **morally** questionable views
 
-*bpd* , *audhd* , *dyslexia* , *Moderate TBI*
+*bpd* , *audhd* , *dyslexia* , *moderate tbi*
 
 all slurs i say i can reclaim
 
