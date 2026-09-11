@@ -3,7 +3,7 @@
 
 ═══════
 
-**void** or **wellcheers**
+**void** , **wellcheers** or **dante**
 
 agender , transmasc , sodagender
 
@@ -23,7 +23,7 @@ i am nonhuman
 
 i have **morally** questionable views
 
-*bpd* , *audhd* , *dyslexia* , *post-concussion syndrome*
+*bpd* , *audhd* , *dyslexia* , *Moderate TBI*
 
 all slurs i say i can reclaim
 
