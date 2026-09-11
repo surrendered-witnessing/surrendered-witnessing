@@ -3,7 +3,7 @@
 
 ═══════
 
-**void** , **wellcheers** or **dante**
+**void** , **wellcheers** , **dante**
 
 agender , transmasc , sodagender
 
