@@ -3,7 +3,7 @@
 
 ═══════
 
-**void** , **wellcheers** , **dante**
+**void** , **wellcheers** , **ahab**
 
 agender , transmasc , sodagender
 
@@ -13,7 +13,7 @@ agender , transmasc , sodagender
 
 i am nonhuman
 
-***opened can of wellcheers fullkin***
+***opened can of wellcheers fullkin, ahab & dante fictkin***
 
 *hong lu familial yumeshipper*
 
